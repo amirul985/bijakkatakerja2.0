@@ -1,0 +1,1 @@
+# bijakkatakerja2.0
